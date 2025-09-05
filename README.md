@@ -1,2 +1,1 @@
-👋 Hi, I'm Dhruv \n
-dhruvsekhawat.com
+👋 Hi, I'm Dhruv
